@@ -1,0 +1,1 @@
+# akumaria_cursing_words
